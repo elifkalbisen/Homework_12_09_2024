@@ -1,2 +1,2 @@
-# Homework_12_09_2024
+# 4. Hafta verilen ödevimi içerir.
  
