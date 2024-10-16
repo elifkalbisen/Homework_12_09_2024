@@ -1,2 +1,2 @@
-# Homework_12_09_2024
+5. Hafta verilen ödevimi içerir.
  
