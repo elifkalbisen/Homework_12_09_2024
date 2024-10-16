@@ -1,2 +1,2 @@
-4. Hafta verilen ödevimi içerir.
+5. Hafta verilen ödevimi içerir.
  
